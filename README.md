@@ -1,2 +1,0 @@
-# Examen-Bimestral-I
-examen 
